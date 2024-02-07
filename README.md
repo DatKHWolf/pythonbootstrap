@@ -1,0 +1,1 @@
+In diesem Repo ist nur Kram drin den ich zum lernen benutze, warum auch immer du hier reinguckst.. lohnt nicht
